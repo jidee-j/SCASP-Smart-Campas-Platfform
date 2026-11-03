@@ -1,0 +1,1 @@
+# SCASP-Smart-Campas-Platfform
